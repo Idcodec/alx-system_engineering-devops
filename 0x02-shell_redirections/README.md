@@ -1,3 +1,0 @@
-Confused smiley
-Smile
-Again
